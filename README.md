@@ -1,6 +1,6 @@
 # Carlos Salvucci
 
-## Experiencias y Conocimientos 💥
+## Experiencias y conocimientos 💥
 
 ### Estudio Integral BTS S.R.L. 🏙️
 
